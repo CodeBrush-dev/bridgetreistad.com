@@ -1,0 +1,2 @@
+# bridgetreistad.com
+bridgetreistad.com
